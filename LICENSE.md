@@ -1,4 +1,4 @@
-# 
+# swing obby for brainrots Scripts premium is the best swing obby for brainrots Script, featuring no clip and auto-collect. Safe and powerful for all
 
 
 
